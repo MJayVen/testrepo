@@ -1,3 +1,3 @@
 # testrepo
 its a test dumbass
-(sorry im sure ur very smary jk)
+(sorry jk im sure ur very smart :))
